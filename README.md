@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kholoyssokar31@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1l5iHI5AKyiNp5clobBz0-7KMT33GULeO/view?usp=sharing](https://drive.google.com/file/d/1l5iHI5AKyiNp5clobBz0-7KMT33GULeO/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nCcTcdlQyjOsy4-Q9SVx_AIlUexJTHXb/view?usp=sharing](https://drive.google.com/file/d/1nCcTcdlQyjOsy4-Q9SVx_AIlUexJTHXb/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
