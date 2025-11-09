@@ -11,7 +11,7 @@
 
 - 🤝 I’m currently work as **odoo developer**
 
-- 📫 How to reach me **kholoyssokar31@gmail.com**
+- 📫 How to reach me **kholoudsamir277@gmail.com**
 
 - 📄 Know about my experiences (https://drive.google.com/drive/folders/1ZYJW-f-wLy8O3jsOJNvrG7g5ogpWVdtn)
 
